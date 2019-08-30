@@ -1,0 +1,1 @@
+[ConfirmationofreadingandunderstandingofCPPSharedExternally.pdf](../files/ConfirmationofreadingandunderstandingofCPPSharedExternally.pdf)
